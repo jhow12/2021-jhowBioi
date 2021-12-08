@@ -1,1 +1,1 @@
-Curso GB16-G02
+Johanna Páez
